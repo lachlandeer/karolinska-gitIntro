@@ -7,6 +7,6 @@ Baby sharks are kind of cute, but they do bite.
 
 ## Sea Otters
 
-ALL Sea Otters are cuter than baby sharks.
+Left handed Sea Otters are cuter than baby sharks.
 If Hadrien could reinvent himself, he would be a Sea Otter in Vancouver.
 
