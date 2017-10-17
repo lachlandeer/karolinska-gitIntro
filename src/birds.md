@@ -7,4 +7,4 @@ He was feeding it BBQ'd sausages.
 
 ## Vultures
 
-Are creepy.
+Are super cool!
